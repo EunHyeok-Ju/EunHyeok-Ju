@@ -38,4 +38,4 @@ I hope you follow me each other a lot. I look forward to your kind cooperation. 
 4. contact
 * E-mail : <wndmsgur96@naver.com>
 * Daily-life blog : <https://blog.naver.com/wndmsgur96>
-* Portfolio blog : <https://shawty-hyuk.tistory.com/1>
+* Portfolio blog : <https://shawty-hyuk.tistory.com>
